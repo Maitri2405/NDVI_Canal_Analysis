@@ -28,6 +28,6 @@ To evaluate the **impact of canal irrigation** on vegetation and land productivi
 
 **Prof. Vimal Mishra**  
 CE299 Project Course, IIT Gandhinagar  
-Spring Semester 2025
+Jan-Apr 2025
 
 
